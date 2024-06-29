@@ -1,0 +1,1 @@
+# QuickTextPaste-8.85-Crack
